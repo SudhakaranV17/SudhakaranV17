@@ -38,4 +38,4 @@
 
 I'm open to freelance work and collaborations. Feel free to reach out if you're interested in working together.
 
-📧 Email: [sudhakaranv17@gmail.com](mailto: sudhakaranv17@gmail.com)
+📧 Email: sudhakaranv17@gmail.com
